@@ -55,3 +55,13 @@ https://www.bilibili.com/video/BV1H64y1V7W1
 《科普兰论音乐》乐评人
 
 
+
+### 聊艺术
+https://www.bilibili.com/video/BV1Jq4y1f76H
+https://www.bilibili.com/video/BV1Ng411c7rX
+
+艺术创作，直接面对前人所有大山。
+是否有决心推动向前再创新。
+
+《童年情景》霍洛维兹
+
